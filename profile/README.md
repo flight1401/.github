@@ -7,3 +7,4 @@
 - [TikTok](https://www.tiktok.com/@flight1401pilot)
 - [YouTube](https://www.youtube.com/@flight1401pilot)
 - [Patreon](https://www.patreon.com/flight1401)
+- [Bluesky](https://bsky.app/profile/flight1401.com)
