@@ -8,5 +8,5 @@
 - [YouTube](https://www.youtube.com/@flight1401pilot)
 - [Patreon](https://www.patreon.com/flight1401)
 - [Bluesky](https://bsky.app/profile/flight1401.com)
-- [X](https://twitter.com/flight1401pilot)
+- [Twitter (X)](https://twitter.com/flight1401pilot)
 - [Discord](https://discord.gg/e6rXrS2AbZ)
