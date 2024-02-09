@@ -1,5 +1,12 @@
 ## Hi there 👋
 
+- [Website](https://flight1401.com/)
+- [Instagram](https://www.instagram.com/flight1401pilot)
+- [YouTube](https://www.youtube.com/@flight1401pilot)
+- [TikTok](https://www.tiktok.com/@flight1401pilot)
+- [Patreon](https://www.patreon.com/flight1401)
+- [GitHub](https://github.com/flight1401)
+
 <!--
 
 **Here are some ideas to get you started:**
